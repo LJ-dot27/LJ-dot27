@@ -1,3 +1,5 @@
+![2957262865_preview_10023](https://github.com/user-attachments/assets/27fec0d0-7953-48d9-ac64-869848a51a52)
+
 # About Me
 
 ## Personal Information
