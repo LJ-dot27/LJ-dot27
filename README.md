@@ -14,10 +14,12 @@
 ## Skills
 - 👾
 - 🕺🏽
+- 🥋
 
 
 ## Hobbies and Interests
 - Basketball⛹️‍♂️
 - Online Gaming 👾
 - Comics 📖
+
 
