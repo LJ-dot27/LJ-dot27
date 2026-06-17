@@ -5,7 +5,7 @@
 - **Name:** LJ Dante
 - **Location:** Biñan , Laguna 🇵🇭
 - **Contact:** 
-  - **Email:** dntelbron5@gmail.com
+  - **Email:** lebrondante07@gmail.com
 
 ## Education
 - **Course:** Bachelor of Science in Computer Science
