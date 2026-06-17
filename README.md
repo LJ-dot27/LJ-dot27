@@ -1,4 +1,3 @@
-![bc980b9e0bf723ac8393222ff0249da9](https://github.com/user-attachments/assets/b85adfd1-f2e1-4b67-83a4-5f4da161c06d)
 
 # About Me
 
